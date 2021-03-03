@@ -2,7 +2,7 @@
 
 ## Ingredients
 * 1 tbsp olive oil
-* 2 garlic cloves, chopped
+* 3 garlic cloves, chopped
 * 1 shallot, chopped
 * 1 pound baby bok choy leaves with stems, rinsed
 * 1 tbsp soy sauce

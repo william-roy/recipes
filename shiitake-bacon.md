@@ -1,7 +1,7 @@
 # Shiitake Bacon
 
 ## Ingredients
-* shiitake mushrooms, cleaned
+* shiitake mushrooms
 * sesame oil
 * sea salt
 
@@ -11,5 +11,5 @@
 3) Add sliced mushrooms to bowl and toss in sesame oil.
 4) On a parchment lined baking sheet, lay out the mushrooms so that they don't overlap. Sprinkle generously with sea salt. 
 6) Bake 12-18 minutes until slightly crispy.
-7) Immediately remove from baking sheet and let cool on paper towels to remove some of the excess oil. 
-8) Serve warm.
+7) Immediately remove from baking sheet place on paper towels to remove some of the excess oil. 
+8) Allow a minute or two to dry, serve warm.
