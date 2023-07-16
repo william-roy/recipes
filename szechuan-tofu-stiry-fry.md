@@ -5,13 +5,13 @@
 * 3 tbsp soy nuts
 * 1½ tbsp Lao Gan Ma spicy chili crisp
 * 1½ inches ginger, diced
-* 6-8 scallions, chopped
+* 3 scallions, chopped
 * ¼ tsp msg
-* 1 tbsp olive oil
+* 1 tbsp canola oil
 * 1 tbsp soy sauce
 * 1 tbsp rice vinegar
 * 1 tsp sesame oil
-* ¼ tsp ground Szechuan Pepper
+* ¼ tsp ground Szechuan peppercorn
 
 ## Directions
 1) Pre-heat oven to 425°F, press tofu to remove excess moisture.
