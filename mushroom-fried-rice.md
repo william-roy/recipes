@@ -3,8 +3,8 @@
 ## Ingredients
 * 2 cups button mushrooms, sliced
 * 1 block tempeh, sliced
-* 1/4 tsp sesame oil
-* 1/2 onion, diced
+* ¼ tsp sesame oil
+* ½ onion, diced
 * 1 tbsp Shaoxing wine
 * 1 tbsp canola oil
 * 1 cup dry brown rice
@@ -13,9 +13,9 @@
 ## Sauce
 * 1 tbsp hot water
 * 1 tbsp soy sauce
-* 1/2 tsp MSG
-* 1/4 tsp sugar
-* 1/8 tsp white pepper
+* ½ tsp MSG
+* ¼ tsp sugar
+* ⅛ tsp white pepper
 * 1 tsp salt
 
 ## Directions

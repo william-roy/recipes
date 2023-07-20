@@ -8,12 +8,12 @@
 * 1 medium (about 3–4 lbs) butternut squash, peeled, seeded and diced
 * 1 white onion, peeled and roughly chopped
 * 1 sprig fresh sage
-* 1/2 tsp salt
-* 1/4 tsp freshly-ground black pepper
-* 1/8 tsp cayenne
-* 1/8 tsp smoked paprika
+* ½ tsp salt
+* ¼ tsp freshly-ground black pepper
+* ⅛ tsp cayenne
+* ⅛ tsp smoked paprika
 * pinch of ground cinnamon and nutmeg
-* 1/3 cup canned (unsweetened) coconut milk
+* ⅓ cup canned (unsweetened) coconut milk
 
 ## Directions
 1) Sautee garlic and onion in a large stockpot for a few minutes until fragrant

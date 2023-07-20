@@ -27,7 +27,7 @@
 * olive oil
 * spinach
 * shiitake mushrooms, sliced
-* vegan mozzarella
+* vegan mozzarella (Miyokos or Numu)
 * 1 head of garlic
 
 ## Directions
