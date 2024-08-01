@@ -17,8 +17,8 @@
 * 1 lime
 
 ## Directions
-* Heat oil in large pot on medium-high heat
-* Add onion, garlic, ginger, tomatoes, cumin powder, curry powder, garam masala, coriander, sea salt, to pot and sautee for 5 minutes, stirring occasionally 
-* Stir in lentils and water
-* Cover and simmer for 20-25 minutes
-* Serve with jasmine rice and lime wedges, garnish with cilantro
+1) Heat oil in large pot on medium-high heat
+2) Add onion, garlic, ginger, tomatoes, cumin powder, curry powder, garam masala, coriander, sea salt, to pot and sautee for 5 minutes, stirring occasionally
+3) Stir in lentils and water
+4) Cover and simmer for 20-25 minutes
+5) Serve with jasmine rice and lime wedges, garnish with cilantro
