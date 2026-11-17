@@ -2,7 +2,7 @@
 
 ## Ingredients
 * 4 cups vegetable broth
-* 1/4 cup tahini
+* ¼ cup tahini
 * 2 tbsp white miso paste
 * 1 tbsp maple syrup
 * 3 cloves garlic, minced
